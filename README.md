@@ -3,7 +3,41 @@
 ---
 ![apple-touch-icon](https://user-images.githubusercontent.com/72757855/158037545-a059ef34-135f-4218-a6ed-47c4f9267e73.png)
 ---
+I Ching Astrology calculates your Energy Cycle Charts based on I Ching Astrology. This system believes that all happening are affected by stars and elements. Once you know the effects of the different energy cycles, you can understand the importance of the different circumstances. In IChing Astrology, each cycle repeats after nine years. Once you know the effects of the different cycles, you can understand the importance of the different circumstances.
 
+
+
+
+Years Of:
+1996
+2005
+2014
+2023
+2032
+2041
+2050
+2059
+2068
+
+Energy Cycle Chart 8
+Base Number is Present in Thunder Year
+After the inert period of Earth year comes the year of thunder. This year you should burst into activity with a roar. Just like the flashes of lightning, you can surprise the world with new flashes of your creative genius, new ideas and thoughts. With much noise just like the thunder, you would draw the attention of the others. The flashes of lightning declare the coming of rainy season, the season of renewed life, refreshing changes and fertility.
+
+Likewise, this year ushers the advent of a happy and fruitful time. But in order to attain accomplishment, you must take proper care to sow the seeds of new possibilities now. The time frame is ultimately favorable to initiate a new project, to put your life on a solid base.
+
+Changes will be noticed not so much in the outer world as in your inner world. You will work hard to add new dimensions in your life. You are building new foundations for the future. You will nurture the outgoing aspect of your personality, enjoy the company of your friends and spread your message. The thunder year is dominated by the wood element. If you have a weak liver or bile related syndromes, those complications can be aggravated.
+
+
+
+
+
+
+<script type="text/javascript" src="http://www.mysticscripts.com/i-ching/iching-astrology/ia-syndication.html?target=_blank"></script>
+Offer Free Readings on your site today. Put this absolutely FREE script on your site in under two minutes! Just copy and paste the codes onto your site and you are all set to go! Click here for more details.
+
+MysticScripts.com© 2016 - 2017 - 2018. All rights reserved. Copying any image and other content on MysticBoard is strictly prohibited. Mystic Board's MysticSoftwares.com And MysticScripts.com services and products are provided for entertainment purposes only. || Contact Us | Privacy Policy | Disclaimer
+x
+xx
 
 ### What would you do diffrently today?
 ### We are in the age of nearly infinite leverage
