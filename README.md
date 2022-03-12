@@ -1,10 +1,7 @@
-# Welcome to Jorge's GitHub Page
+# Welcome to Jorge's GitHub Page ! 
 
 ---
-
-
-![android-chrome-512x512](https://user-images.githubusercontent.com/72757855/158037355-a54ea2a7-6d17-4a5e-9ce1-6f26126cd835.png)
-
+![apple-touch-icon](https://user-images.githubusercontent.com/72757855/158037545-a059ef34-135f-4218-a6ed-47c4f9267e73.png)
 ---
 
 
