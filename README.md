@@ -7,19 +7,6 @@
 >Biology runs on genes and genes are the units of meaning of heredity. A word has been invented, meme. A meme is the smallest unit of meaning of an idea. Ideas are made of memes. - Terence McKenna (1990)
 
 
-## I Ching Astrology calculates your Energy Cycle Charts based on I Ching Astrology.
-Im currently on Energy Cycle Chart 8 of 9
-
-Base Number is Present in Thunder Year
-After the inert period of Earth year comes the year of thunder. This year you should burst into activity with a roar. Just like the flashes of lightning, you can surprise the world with new flashes of your creative genius, new ideas and thoughts. With much noise just like the thunder, you would draw the attention of the others. The flashes of lightning declare the coming of rainy season, the season of renewed life, refreshing changes and fertility.
-
-Likewise, this year ushers the advent of a happy and fruitful time. But in order to attain accomplishment, you must take proper care to sow the seeds of new possibilities now. The time frame is ultimately favorable to initiate a new project, to put your life on a solid base.
-
-Changes will be noticed not so much in the outer world as in your inner world. You will work hard to add new dimensions in your life. You are building new foundations for the future. You will nurture the outgoing aspect of your personality, enjoy the company of your friends and spread your message. The thunder year is dominated by the wood element. If you have a weak liver or bile related syndromes, those complications can be aggravated.
-
-x
-xx
-
 ### What would you do diffrently today?
 ### We are in the age of nearly infinite leverage
 
@@ -78,3 +65,14 @@ To know more about a DAO project I’m currently involved in where we share idea
 - 📫 How to reach me: on twitter or contact info on my website
 - ⚡ Fun fact: I was can beat anyone in FIFA
 -->
+
+## I Ching Astrology calculates your Energy Cycle Charts based on I Ching Astrology.
+Currently in Energy Cycle Chart 8 of 9
+
+Base Number is Present in Thunder Year
+After the inert period of Earth year comes the year of thunder. This year you should burst into activity with a roar. Just like the flashes of lightning, you can surprise the world with new flashes of your creative genius, new ideas and thoughts. With much noise just like the thunder, you would draw the attention of the others. The flashes of lightning declare the coming of rainy season, the season of renewed life, refreshing changes and fertility.
+
+Likewise, this year ushers the advent of a happy and fruitful time. But in order to attain accomplishment, you must take proper care to sow the seeds of new possibilities now. The time frame is ultimately favorable to initiate a new project, to put your life on a solid base.
+
+Changes will be noticed not so much in the outer world as in your inner world. You will work hard to add new dimensions in your life. You are building new foundations for the future. You will nurture the outgoing aspect of your personality, enjoy the company of your friends and spread your message. The thunder year is dominated by the wood element. If you have a weak liver or bile related syndromes, those complications can be aggravated.
+
