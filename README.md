@@ -63,7 +63,7 @@ To know more about a DAO project I’m currently involved in where we share idea
 - 🤔 I’m looking for help with where to start 
 - 💬 Ask me about anything really! like ancient eygpt, or the universe or technology
 - 📫 How to reach me: on twitter or contact info on my website
-- ⚡ Fun fact: I was can beat anyone in FIFA
+- ⚡ Fun fact: I can beat anyone in FIFA
 -->
 
 ## I Ching Astrology calculates your Energy Cycle Charts based on I Ching Astrology.
