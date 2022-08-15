@@ -41,15 +41,6 @@ This is one of my favorite quotes that I try to live by everyday
 * Helping others
 ***
 
-
-
-### Some fun facts about me
-
-- I know how to cook
-- But I dont know how to dance
-- I can beat anyone in FIFA
-- And I someday would like to get a bunch of tattoos
-
 ---
 
 
