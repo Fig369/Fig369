@@ -4,6 +4,8 @@
 
 >Biology runs on genes and genes are the units of meaning of heredity. A word has been invented, meme. A meme is the smallest unit of meaning of an idea. Ideas are made of memes. - Terence McKenna (1990)
 
+---
+
 ### We are in the age of nearly infinite leverage
 
 ---
