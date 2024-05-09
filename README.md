@@ -1,6 +1,6 @@
 # Welcome to Fig's GitHub Page ! 
 
-My Portfolio <a href="https://www.Fig369.github.io" target="_blank">Fig369.github.io</a>
+My Portfolio <a href="https://fig369.github.io/" target="_blank">Fig369.github.io</a>
 
 ---
 
