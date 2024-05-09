@@ -1,5 +1,7 @@
 # Welcome to Fig's GitHub Page ! 
 
+My Portfolio <a href="Fig369.github.io" target="_blank">Fig369.github.io</a>
+
 ---
 
 >Biology runs on genes and genes are the units of meaning of heredity. A word has been invented, meme. A meme is the smallest unit of meaning of an idea. Ideas are made of memes. - Terence McKenna (1990)
