@@ -14,7 +14,7 @@ My Portfolio <a href="https://fig369.github.io/" target="_blank">Fig369.github.i
 
 # **About Me**
 
-As a Full Stack Web Developer, I have successfully designed and implemented numerous projects, showcasing my ability to deliver high-quality solutions. I am skilled in both front-end and back-end development, utilizing languages such as HTML, CSS, JavaScript, C# and PHP.
+#### As a Full Stack Web Developer, I have successfully designed and implemented numerous projects, showcasing my ability to deliver high-quality solutions. I am skilled in both front-end and back-end development, utilizing languages such as HTML, CSS, JavaScript, C# and PHP.
 ---
 
 
